@@ -1,0 +1,1 @@
+# QuickCategory-for-Outlook
